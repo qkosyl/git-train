@@ -1,1 +1,3 @@
 # git-train
+
+NA CHUJ SIE SRASZ GOSCIU
